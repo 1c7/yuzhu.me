@@ -13,3 +13,6 @@ I would write a progress report once a month
 
 ### Thanks :)    
 you can contact me at ```guokrfans[at]gmail.com```
+
+### Product Hunt Launch - Oct 20,2017 - got 25 upvote
+[https://www.producthunt.com/posts/yuzhu](https://www.producthunt.com/posts/yuzhu)
